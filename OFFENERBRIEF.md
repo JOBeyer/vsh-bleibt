@@ -34,19 +34,21 @@ Ein plakatives Beispiel stellt das Ulmer LoRaWAN Netz dar: hierzu hatte die Stad
 
 Für uns stand immer fest: Die Stadtverwaltung von Ulm hat verstanden, was sie am Verschwörhaus und an dieser einmaligen Community hat. Sie hat auch verstanden, dieser Community die Freiräume zuzugestehen, die es braucht, wenn man die Idee einer „Smart City“ mit Leben füllen möchte. Wenn man die digitale Transformation ernsthaft, proaktiv und zukunftsweisend, nachhaltig, Mehrwert stiftend, vor allem aber für die Bürger:innen und mit den Bürger:innen gestalten möchte.
 
-Mit der jüngsten Entscheidung zum neuen Nutzungskonzept wird all dies in Frage gestellt. Mehr noch. Die Stadt Ulm – und mit ihr auch die anderen, mit dem Verschwörhaus vielfältig verbandelten Kommunen – werden erfahren, was für uns schon heute absehbar ist: Es ist nicht möglich, als Verwaltung das zu kompensieren, was eine Gruppe engagierter Ehrenamtlicher reißen kann. Nicht monetär, vor allem aber nicht inhaltlich.
+Mit den jüngsten Entscheidungen wird all dies in Frage gestellt. Mehr noch. Die Stadt Ulm – und mit ihr auch die anderen, mit dem Verschwörhaus vielfältig verbandelten Kommunen – werden erfahren, was für uns schon heute absehbar ist: Es ist nicht möglich, als Verwaltung das zu kompensieren, was eine Gruppe engagierter Ehrenamtlicher reißen kann. Nicht monetär, vor allem aber nicht inhaltlich.
 
-Wir als Freunde und Unterstützer des Verschwörhaus hoffen, dass die Stadt Ulm diesen riesigen Schatz weiterhin bewahrt und pflegt und ihn nicht grundlos und leichtfertig zerstört. Denn: Selbst, wenn Name und Ort bestehen bleiben – ohne die ehrenamtliche Community wird ein solches Haus keine echte Wirkung mehr erreichen.
+Gleichwohl ist erkennbar, dass wenigstens zum jetzigen Zeitpunkt die Vertrauensgrundlage zwischen Stadtverwaltung und Verein so weit zerstört ist, dass eine Zusammenarbeit und eine auf Augenhöhe und gemeinsamen Wegen basierende Weiterentwicklung des physischen "Verschwörhauses" nicht mehr möglich zu sein scheint. Wir als Freunde und Unterstützer des Verschwörhaus bedauern dies von Herzen und haben große Sorge, dass so dieser riesige Schatz der Stadt Ulm verloren geht. Denn: Selbst, wenn Name und Ort bestehen bleiben – ohne die ehrenamtliche Community wird ein solches Haus keine echte Wirkung mehr erreichen.
 
-## Unsere Forderungen
+## Unsere Wünsche
 
-Sehr geehrter Herr Oberbürgermeister Czisch, sehr geehrte Damen und Herren,
+Wir hoffen trotz allem, dass dieses einzigartige städtische Ökosystem bestehen bleibt und Stadt und Verein über die Zeit wieder näher zusammenrücken können. 
 
-tragen Sie dafür Sorge, dass dieses einzigartige städtische Ökosystem bestehen bleibt. Nehmen Sie das Nutzungskonzept zurück und ermöglichen eine freie und unabhängige digitale Vereinsarbeit. Gehen Sie den bewährten Weg weiter und unterstützen finanziell die Ulmer Community, ohne die Freiheitsgrade in Frage zu stellen, die für den Erfolg so ursächlich sind.
+Wir hoffen, dass trotz aller Differenzen und Konflikte ein Weg gefunden wird, um gemeinsam konstruktiv-kritisch an diesem "Ulmer Schatz" weiterzuarbeiten. Dazu zählt insbesondere auch die Anerkennung der Namensrechte und die Beilegung des laufenden Rechtsstreits.
 
-Finden Sie gemeinsam mit den vielen Ehrenamtlichen einen Weg, um gemeinsam konstruktiv-kritisch an diesem Projekt weiterzuarbeiten. Dazu zählt insbesondere auch die Anerkennung der Namensrechte und die Beilegung des laufenden Rechtsstreits.
+Wir hoffen, dass eine freie und unabhängige digitale Vereinsarbeit - ggf. auch unabhängig von der Stadt und an anderem Ort - gelingen wird. 
 
-Das Verschwörhaus ist längst nicht mehr alleine für die Stadt Ulm prägend. Wie oben bereits ausgeführt: Das Verschwörhaus trägt auch ganz entscheidend zur digitalen Transformation vieler anderer Kommunen in ganz Deutschland bei. Zerstören Sie nicht ohne Not eine solche einzigartige Gemeinschaft!
+Das Verschwörhaus ist längst nicht mehr alleine für die Stadt Ulm prägend. Es trägt auch ganz entscheidend zur digitalen Transformation vieler anderer Kommunen in ganz Deutschland bei. 
+
+Sehr geehrter Herr Oberbürgermeister Czisch, sehr geehrte Damen und Herren: Zerstören Sie nicht ohne Not eine solche einzigartige Gemeinschaft!
 
 ## Unterstütze unseren offenen Brief
 
